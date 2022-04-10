@@ -1,2 +1,2 @@
 # blackmarket-invite-link
-blackmarket invite link
+Updated Link: discord.st/blackmark
